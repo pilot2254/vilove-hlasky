@@ -1,132 +1,101 @@
-No pockaj. Tu ta zastavim, kameru nastavim, rodinu zastrelim a psa ti uvarim
+# Legendarne vilove Hlasky
 
-Ja jebem tuto hru, ja tak do niecoho jebnem. Napriklad do tej steny, jebnem do nej tak silno ze ju prerazim rovno rodicom do spalne.
+- No pockaj. Tu ta zastavim, kameru nastavim, rodinu zastrelim a psa ti uvarim
 
-JA OBKUSEM TU STENU, FAKT
+- Ja jebem tuto hru, ja tak do niecoho jebnem. Napriklad do tej steny, jebnem do nej tak silno ze ju prerazim rovno rodicom do spalne.
 
-Ty vyzeras ako ten typ cloveka ktory ked si stiahne gate tak tie gate od neho utecu
+- JA OBKUSEM TU STENU, FAKT
 
-Ty si ten typ cloveka co ked ide jest uhorky tak si ich osupe a zje tu kozu z nej
+- Ty si taka Germanska Pochutka
 
-Ty znies ako piesen rimskeho kona
+- Homosexualny medved
 
-Co som take spravil?! Nadychol si sa moc hlasno
+- sietkove dvere na ponorke
 
-Zralok strikes again.
+- Ty vyzeras ako ten typ cloveka ktory ked si stiahne gate tak tie gate od neho utecu
 
-Vies preco ta je tak ticho pocut? Mas mikrak podla mna o 4 poschodia nizsie lebo si ho boli susedia pozicat a uz ho nevratili takze teraz mas v bytovke po shodoch len tak natiahnuty kabel od mikrofonu.
+- Ty si ten typ cloveka co ked ide jest uhorky tak si ich osupe a zje tu kozu z nej
 
-Pocuvaj ma sem a pocuvaj ma dobre
+- Ty znies ako piesen rimskeho kona
 
-Ja dufam ze tvoje deti budu curat nakrivo a srat hore nohami
+- Co som take spravil?! Nadychol si sa moc hlasno
 
-Ja zacnem levitovat s toho ako som nasrany
+- Zralok strikes again.
 
-Ty cernosska rolada
+- Vies preco ta je tak ticho pocut? Mas mikrak podla mna o 4 poschodia nizsie lebo si ho boli susedia pozicat a uz ho nevratili takze teraz mas v bytovke po shodoch len tak natiahnuty kabel od mikrofonu.
 
-Ty ritna bocnica
+- Cuj ma sem a pocuvaj ma dobre
 
-Ty osrata utierka na riad
+- Ja dufam ze tvoje deti budu curat nakrivo a srat hore nohami
 
-Ty sunkolizac
+- Ja zacnem levitovat s toho ako som nasrany
 
-Ty ritny vysavac
+- Ty cernosska rolada
 
-Hippity Hoppity, get the fuck out of my property
+- Ty ritna bocnica
 
-Uz ti niekedy povedal tvoj spoluziak ze ta chce vyzliect zubami, a nasledne ti strcil prsty do riti?
+- Ty osrata utierka na riad
 
-Dufam ze dostanes perma ban na dychacie cesty
+- Ty sunkolizac
 
-Avatar, the last water bender
+- Ty ritny vysavac
 
-Okay, tak ja sa poserem tatkovi do nohavic za toto
+- Hippity Hoppity, get the fuck out of my property
 
-Kurva mne zas padol ten radiátor vyjebany
+- Uz ti niekedy povedal tvoj spoluziak ze ta chce vyzliect zubami, a nasledne ti strcil prsty do riti?
 
-Vsak to je horsie nez vilo
+- Dufam ze dostanes perma ban na dychacie cesty
 
-Kaskaderske kusky len s tabletkami a alkoholom
+- Avatar, the last water bender
 
-Dufam ze sa rozpadnes na lego kocky. Proste niekto do teba dgrne bez toho aby si si to uvedomil a sa rozpadnes na lego kocky.
+- Okay, tak ja sa poserem tatkovi do nohavic za toto
 
-Kamo, jedneho dna sa zobudis a zistis ze ti zmizli vsetky pohare, a ja ti ich zoberiem. Proste sa ti v noci vkradnem do domu.
+- Kurva mne zas padol ten radiator vyjebany
 
-Dufam ze sa jedneho dna zobudis a zmizne ti sprchovy kut.
+- Vsak to je horsie nez vilo
 
-Kaamo, pridem k tebe domov, odmontujem ti dvere a nasadim ti ich o 3cm na pravo a odidem.
+- Kaskaderske kusky len s tabletkami a alkoholom
 
-Ja to jebem, idem si odkusnut z toho stola.
+- Dufam ze sa rozpadnes na lego kocky. Proste niekto do teba dgrne bez toho aby si si to uvedomil a sa rozpadnes na lego kocky.
 
-Prosim, spapaj olovo
+- Kamo, jedneho dna sa zobudis a zistis ze ti zmizli vsetky pohare, a ja ti ich zoberiem. Proste sa ti v noci vkradnem do domu.
 
-Ty nepodareny marketingovy tah
+- Dufam ze sa jedneho dna zobudis a zmizne ti sprchovy kut.
 
-Ty si ten typ cloveka co ked nakupi jedlo tak ho hodi do kosa a zje iba ten blocek
+- Kaamo, pridem k tebe domov, odmontujem ti dvere a nasadim ti ich o 3cm na pravo a odidem.
 
-Ty si ten typ cloveka ktory ked si osupe banan tak zje iba tu supku a ostatne ide do kosa
+- Ja to jebem, idem si odkusnut z toho stola.
 
-Jezis, ty si krivy ako svedske vyhybky.
+- Prosim, spapaj olovo
 
-Nevidim ta tak ako rusi nevidia finskych sniperov.
+- Ty nepodareny marketingovy tah
 
-Idem si napchat celu perinu do gati
+- Ty si ten typ cloveka co ked nakupi jedlo tak ho hodi do kosa a zje iba ten blocek
 
-Neger jager jano ma bager
+- Ty si ten typ cloveka ktory ked si osupe banan tak zje iba tu supku a ostatne ide do kosa
 
--
+- Jezis, ty si krivy ako svedske vyhybky.
 
-I forgot to turn the stove off, and burn down the whole house.
+- Nevidim ta tak ako rusi nevidia finskych sniperov.
 
-I forgot to cook the dinner and my dad grabbed bananas and hit me.
+- Idem si napchat celu perinu do gati
 
-I thought it would be funny to put fireworks in my goofy ahh dad's turkey sandwich.
+- Neger jager jano ma bager
 
-My uncle beat me up in the shower while I was in prison.
+- Moj brat zomrel na auto iduce rychlosťou 5 km za hodinu, keď letel pod vodou.
 
-Hey guys its drake here, want free v-bucks? Give me your credit card information and your street adress, and your social security number, and the security code on the back of the card. Also, what are your parent's names, what is your zip code, when are you home alone, how old are you, how do you feel about white vans, how do you feel about being trapped in basement for 12 hours.
+- Moj stryko vcera otehotnel, keď si v sprche vyberal mydlo.
 
--
+- Miso uz zase pozeral cocomenol a rozhodol sa zjest svojho skrecka.
 
-Its been a year daddy, I really really miss you. Mommy says you went to store to get milk. Anyways, im failing on my classes and mommy hates me very frequently and she changed my name to "Tickle Tip Son". Anyways daddy, i forgive you for abusing me, please come back.
+- Pristihol som stryka ako sťahuje sto gigabajtov Furry obrazkov a do sekundy zomrel.
 
-Its been 20 years daddy, I really really hate you. Mommy told me the truth before she died. I know you left us, i killed mommy and her new boyfriend, and I taken over the world. But dont worry, heh heh, I know where you are. And im gonna hunt you down and kill you, you better watch your back, heh heh.
+- Hodil som na ucitelku obrazok Dora the explorer a otec ma zmlatil slapkou a zavrel do pivnice.
 
-Its been 100 years daddy, hehehihihaha... I know youre still alive out there somewhere, you have been hiding for long enough, mommy is been dead for 80 years now. I think its time for you to come back, heheh, I think im immortal. I was forced to eat dry cereal for my whole life. Come back daddy, hehehe, I just wanna play
+- Chcel som prekvapiť svoju zlatu rybku novym priatelom. Ukazalo sa, ze macka ma velmi odlisny vyklad toho, co je hra.
 
--
+- Pokusil som sa sam opraviť tecuci kohutik. Povedzme, ze potopa nebola v plane rekonstrukcie.
 
-My grandma was locked in elevator on september 11, then she got invited to chernobyl expedition. My sister is currently in hospital giving her third leg remove
+- Skusil som si vyrobiť vlastny ohňostroj na 4. jula. Nakoniec som spustil alarmy v autach a sposobil paniku v dedine
 
-My brother died to a car going 5 miles per hour while flying underwater.
-
-My uncles boyfriend got pregnant yesterday while he was picking up soap in shower.
-
-Yo, its Logan here again. I was watching cocomelon and decided to choke my own chicken.
-
-I caught my uncle downloading 1 hundred GigaBytes of furry images, and he died.
-
-I hit my teacher with dora the explorer coloring book, and my father beat me up with flip-flop and locked me in his basement.
-
-So, I tried to impress my crush by making them a cake. Turns out I'm more of a fire hazard than a baker. Who knew a firetruck could make such a romantic backdrop?
-
-I attempted a DIY project to impress my date. Let's just say, if love is blind, it's also apparently allergic to super glue.
-
-I thought I'd try my hand at gardening to impress my neighbors. Now I have a flourishing crop of weeds and a reputation as the neighborhood green thumb's arch-nemesis.
-
-Tried to show off my cooking skills by making dinner for my in-laws. Ended up serving a gourmet meal of burnt offerings with a side of smoke alarm serenade.
-
-I wanted to surprise my pet goldfish with a new friend. Turns out, the cat has a very different interpretation of what constitutes a playdate.
-
-Attempted to fix a leaky faucet myself. Let's just say, the flood was not in the renovation plans.
-
-Tried to impress my crush with my karaoke skills. Ended up serenading an empty room after everyone "mysteriously" vanished.
-
-Decided to DIY my Halloween costume this year. Let's just say, I didn't realize a bedsheet could be so complicated.
-
-Tried to make my own fireworks display for the 4th of July. Ended up setting off car alarms and causing a neighborhood-wide panic. Oops!
-
-Thought I'd showcase my athleticism by joining a sports team. Let's just say, my career highlight reel consists mostly of me tripping over my own feet.
-
-
-
+- Myslel som si, ze predvediem svoj sportovy talent tym, ze sa pridam k sportovemu tímu. Povedzme, ze moja kariera pozostava vacsinou z toho, ako som zakopaval o vlastne nohy.
