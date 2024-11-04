@@ -6,6 +6,8 @@
 
 - JA OBKUSEM TU STENU, FAKT
 
+- Ty si take magicke dietatko
+
 - Ty si taka Germanska Pochutka
 
 - Homosexualny medved
@@ -99,3 +101,23 @@
 - Skusil som si vyrobiť vlastny ohňostroj na 4. jula. Nakoniec som spustil alarmy v autach a sposobil paniku v dedine
 
 - Myslel som si, ze predvediem svoj sportovy talent tym, ze sa pridam k sportovemu tímu. Povedzme, ze moja kariera pozostava vacsinou z toho, ako som zakopaval o vlastne nohy.
+
+- Mas viac deti nez ciganska rodina
+
+- Ty uvareny bramboracik
+
+- Podme rubat stromy
+
+- Ty pripecena briketa
+
+- Vyzeras ako ten typ cloveka ktoremu mama kupovala megabox namiesto lega
+
+- Prestan uz prdiet do mikrofonu
+
+- Ty si ten typ cloveka ktory si mysli ze londyn je v kanade
+
+- Ty si horsi nez ty ludia co seru v sprche
+
+- Chlapci berieme hypoteky, a ide sa do kasina
+
+- Si ako ten typ cloveka ktory si strci kabel do riti a mysli si ze nabera energiju
