@@ -12,7 +12,7 @@
 
 - Homosexualny medved
 
-- sietkove dvere na ponorke
+- Si uzitocny ako sietkove dvere na ponorke
 
 - Ty vyzeras ako ten typ cloveka ktory ked si stiahne gate tak tie gate od neho utecu
 
