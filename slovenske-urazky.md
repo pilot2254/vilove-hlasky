@@ -1,0 +1,28 @@
+A – analfabet, ancikrist
+B - bača, bačkora, bachráč, baran, bastard, bazmek, bibas, biľbas, bosorák,bosorka, brdo, bryndziar, bubák, bujak, bumbaj, býk
+C - cap,ceckaňa, cengáč, cibazól, ciciak, cicvor, corgoň, cundra
+Č - čert, čudák, čumák, čurák, čuridlo
+D - darebák, darmožráč, daromník, diabol, dilino, drbohlav, drnaj, dudok
+E – egreš
+F - falošník, farizej, fas, fičúr, figliar, fiškus, fiťfiriť,frckoš, funebrák, furták, fúzač
+G - gabaj, gamboš, garafia, gaťkár, grázel, grmbolec, grobian
+H - hajzeľ, hajzlipucer, halapirkoš, handra, haraburda, haťapák, hebedo,hlaváč, hlavaj, hlaváň, hlucháň, hnida, hnusník, hnusoba, holobriadok, holopupkár,hotentot, hovädo, hovniak, hugáň, hundroš, hurtoš, hus
+CH - chlipník, chňupák, chňupo, chrchliak, chrchloš, chruňo, chrúst,chuj, chujo, chumaj
+I - inteligent
+J - jašo, jazyčnica
+K -kalika, kazimír, kazisvet, kobyla, kofa, kopov, korheľ, kotrba, koťuha, koza, krava, krepáň,krikľún, krpáň, krpčiar, krpec, kulifaj
+L - lajno, lapikurkár, lazár, lazník, líška, lobogó, lófas, lojtra,loktibrada, loptoš, lucifer
+M - magor, mamľas, mamut, mandrák, mantinel, maškara,medveď, motovidlo, mravec, mrcina, mrcha, mumák, mumraj
+N - nemehlo, nenažranec, neogabanec, neokresanec, neokrôchanec,neotesanec, neplecha, nepodarenec, nepodarok, netrebák, niktoš
+O - obuch, obžera, odkundes, odľud, odroň, ogrceľ, ohava, ohreblo,ochechuľa, ochľasta, onuca, opacha, opica, osranec, ošklbanec, ošťanec, oštinoha,oštoba, otkundes, otrhanec, ozembuch, ozruta, ožran
+P - pačmaga, papagáj, papľuha, papľuch, papuľa, papuľniak,parazól, paripa, paskuda, paskudník, pátričkár, pažravec, pecival, pecúch, pes, pletkár,pľuha, pľuhavec, pobehlica, pochábeľ, pojašenec, pokušiteľ, popolvár,poškrabok, potkan, potmehúd, potrimiskár, poturčenec, povaľač, prasa,príštipkár, putifaj
+R - radodajka, randoš, rapotačka, raťafák, raubšic, riťolez,rozdrapenec, rozgajdanec
+S - sedliak, sharik, shukaj, skaderuka-skadenoha, skrčok, skunk, skupáň, slepáň, smrtka,sprosták, sraľo, starigáň, straka, striga, strigáň, suka, svätuškár, syseľ
+Š - šašo, šepleta, šibeničník, šibrinkár, škarnicľa, škatuľa, škebľa, šklban, škrata,škuľavec, špajdľa, špata, špina, štek, štrbák, šúplata, šuta
+T - táradlo, tekvica, teľa, tchor, tlčhuba, trdlo, trepadlo,trhan, trkvas, trpák, trtkoš, trúba, trubiroh, truľo
+Ť - ťapa, ťapša, ťarbák, ťuťmák
+U - ucháň
+V - vandrák, vecheť, vlkolak, volenciér, voš, vôl, vrculák, všivák,vydriduch, výškrabok, vytririť, vyvrheľ
+X - xantipa
+Z - zákrpok, zasran, zdochliak, zdochlina, zlostník, zmrd
+Ž - žaba, žgrloš, židák, žobrák, žrút
