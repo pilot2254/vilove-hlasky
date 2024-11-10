@@ -6,6 +6,8 @@
 
 - JA OBKUSEM TU STENU, FAKT
 
+- Ty cinsky bobor
+
 - Ty si take magicke dietatko
 
 - Ty si taka Germanska Pochutka
