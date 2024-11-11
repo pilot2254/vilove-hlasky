@@ -6,6 +6,8 @@
 
 - JA OBKUSEM TU STENU, FAKT
 
+- Si horsi ako ludia co seru v sprche
+
 - Ty cinsky bobor
 
 - Ty si take magicke dietatko
@@ -123,3 +125,7 @@
 - Chlapci berieme hypoteky, a ide sa do kasina
 
 - Si ako ten typ cloveka ktory si strci kabel do riti a mysli si ze nabera energiju
+
+- Si horsi ako ludia co seru hore nohami
+
+- JA SA NEVOLAM VILO ROZBORIL TY KURVA
