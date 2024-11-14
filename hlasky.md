@@ -10,6 +10,8 @@
 
 - Ty cinsky bobor
 
+- Prisaham ze sa tatkovi vyserem do gati
+
 - Ty si take magicke dietatko
 
 - Ty si taka Germanska Pochutka
