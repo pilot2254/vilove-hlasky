@@ -115,3 +115,9 @@
 - JA SA NEVOLAM VILO ROZBORIL TY KURVA
 
 - Ty vyzeras ako ten typ cloveka ktory si umyva zuby hajzlovou kefou
+
+- A ty vyzeras ako ten typ cloveka ktory fajci ludom deda
+
+- Ty uzbekistanska kalkulacka
+
+- Ty vyzeras ako ten typ cloveka ktory fajci ludom deda
