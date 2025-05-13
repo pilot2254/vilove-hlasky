@@ -90,24 +90,6 @@
 
 - Neger jager jano ma bager
 
-- Moj brat zomrel na auto iduce rychlosťou 5 km za hodinu, keď letel pod vodou.
-
-- Moj stryko vcera otehotnel, keď si v sprche vyberal mydlo.
-
-- Miso uz zase pozeral cocomenol a rozhodol sa zjest svojho skrecka.
-
-- Pristihol som stryka ako sťahuje sto gigabajtov Furry obrazkov a do sekundy zomrel.
-
-- Hodil som na ucitelku obrazok Dora the explorer a otec ma zmlatil slapkou a zavrel do pivnice.
-
-- Chcel som prekvapiť svoju zlatu rybku novym priatelom. Ukazalo sa, ze macka ma velmi odlisny vyklad toho, co je hra.
-
-- Pokusil som sa sam opraviť tecuci kohutik. Povedzme, ze potopa nebola v plane rekonstrukcie.
-
-- Skusil som si vyrobiť vlastny ohňostroj na 4. jula. Nakoniec som spustil alarmy v autach a sposobil paniku v dedine
-
-- Myslel som si, ze predvediem svoj sportovy talent tym, ze sa pridam k sportovemu tímu. Povedzme, ze moja kariera pozostava vacsinou z toho, ako som zakopaval o vlastne nohy.
-
 - Mas viac deti nez ciganska rodina
 
 - Ty uvareny bramboracik
@@ -131,3 +113,5 @@
 - Si horsi ako ludia co seru hore nohami
 
 - JA SA NEVOLAM VILO ROZBORIL TY KURVA
+
+- Ty vyzeras ako ten typ cloveka ktory si umyva zuby hajzlovou kefou
