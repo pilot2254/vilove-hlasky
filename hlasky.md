@@ -1,5 +1,7 @@
 # Legendarne vilove Hlasky
 
+- JA SA NEVOLAM VILO ROZBORIL TY KURVA
+
 - No pockaj. Tu ta zastavim, kameru nastavim, rodinu zastrelim a psa ti uvarim
 
 - Ja jebem tuto hru, ja tak do niecoho jebnem. Napriklad do tej steny, jebnem do nej tak silno ze ju prerazim rovno rodicom do spalne.
@@ -112,12 +114,14 @@
 
 - Si horsi ako ludia co seru hore nohami
 
-- JA SA NEVOLAM VILO ROZBORIL TY KURVA
-
 - Ty vyzeras ako ten typ cloveka ktory si umyva zuby hajzlovou kefou
 
 - A ty vyzeras ako ten typ cloveka ktory fajci ludom deda
 
+- To je cool ale to nezmeni ten fakt ze ty kuses do postele
+
 - Ty uzbekistanska kalkulacka
 
 - Ty vyzeras ako ten typ cloveka ktory fajci ludom deda
+
+- To je cool ale to nezmeni ten fakt ze ty kuses do postele
