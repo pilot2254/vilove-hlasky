@@ -34,7 +34,7 @@
 
 - Vies preco ta je tak ticho pocut? Mas mikrak podla mna o 4 poschodia nizsie lebo si ho boli susedia pozicat a uz ho nevratili takze teraz mas v bytovke po shodoch len tak natiahnuty kabel od mikrofonu.
 
-- Cuj ma sem a pocuvaj ma dobre
+- Cuj ma sem a cuj ma dobre
 
 - Ja dufam ze tvoje deti budu curat nakrivo a srat hore nohami
 
@@ -125,3 +125,5 @@
 - Ty vyzeras ako ten typ cloveka ktory fajci ludom deda
 
 - To je cool ale to nezmeni ten fakt ze ty kuses do postele
+
+- Ty co za pyramidove schemy robis kurva
