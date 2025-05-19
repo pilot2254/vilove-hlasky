@@ -129,3 +129,5 @@
 - Ty co za pyramidove schemy robis kurva
 
 - Znasilnim ti tvojho psa, a narvem ti ho do gitary
+
+- Dufam ze ked sa zobudis tak tvoja babka ti upecie kolacik
