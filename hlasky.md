@@ -127,3 +127,5 @@
 - To je cool ale to nezmeni ten fakt ze ty kuses do postele
 
 - Ty co za pyramidove schemy robis kurva
+
+- Znasilnim ti tvojho psa, a narvem ti ho do gitary
