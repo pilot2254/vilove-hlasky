@@ -1,5 +1,9 @@
 # Legendarne vilove Hlasky
 
+- 12
+
+- 9
+
 - JA SA NEVOLAM VILO ROZBORIL TY KURVA
 
 - No pockaj. Tu ta zastavim, kameru nastavim, rodinu zastrelim a psa ti uvarim
