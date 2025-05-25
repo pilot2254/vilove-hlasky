@@ -133,3 +133,5 @@
 - Dufam ze ked sa zobudis tak tvoja babka ti upecie kolacik
 
 - Ale to stale nezmeni ten fakt ze vysavas strop namiesto podlahy
+
+- Nazdravie
