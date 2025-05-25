@@ -135,3 +135,5 @@
 - Ale to stale nezmeni ten fakt ze vysavas strop namiesto podlahy
 
 - Nazdravie
+
+- Mas personalitu drevenej pizze
