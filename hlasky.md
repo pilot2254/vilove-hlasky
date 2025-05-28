@@ -141,3 +141,7 @@
 - Nazdravie
 
 - Mas personalitu drevenej pizze
+
+- Jak ti islo zapajanie kondenzatorov
+
+- Ma tu niekto osciloskop
