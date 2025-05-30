@@ -145,3 +145,5 @@
 - Jak ti islo zapajanie kondenzatorov
 
 - Ma tu niekto osciloskop
+
+- Maty je ten typ cloveka ktory ti kupi a posle pracku a povie ti "postav si ju"
