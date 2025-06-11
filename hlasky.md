@@ -149,3 +149,5 @@
 - Maty je ten typ cloveka ktory ti kupi a posle pracku a povie ti "postav si ju"
 
 - The younger the soul, the tighter the hole
+
+- Kebyze ti zoberiem flasku, tak uz budes iba misko?
