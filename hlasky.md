@@ -151,3 +151,11 @@
 - The younger the soul, the tighter the hole
 
 - Kebyze ti zoberiem flasku, tak uz budes iba misko?
+
+- Uz balim ten nafukovaci cln.
+
+- Tomas vapi francuzke bagety na zastavke hodzovo namestie
+
+- JA TI ROZJEBEM RODINU
+
+- 
