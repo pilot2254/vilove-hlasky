@@ -158,4 +158,12 @@
 
 - JA TI ROZJEBEM RODINU
 
-- 
+- Miškov brat mi predal fén 
+
+- DAVAJ POZOOOOR
+
+- NIE, VOBEC. POZRI SA NA MOJU PFP
+
+- Ötzi Utanapištim Tarkínius Superbus Brežnev 
+
+- DO PICE. uhh... pardon
