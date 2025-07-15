@@ -167,3 +167,5 @@
 - Ötzi Utanapištim Tarkínius Superbus Brežnev 
 
 - DO PICE. uhh... pardon
+
+- Mas mozog objemu kuracej nugetky a IQ izbovej teploty 
