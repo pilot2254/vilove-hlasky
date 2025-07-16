@@ -169,3 +169,7 @@
 - DO PICE. uhh... pardon
 
 - Mas mozog objemu kuracej nugetky a IQ izbovej teploty 
+
+- Hindi kama sutra naked crossfit yoga
+
+- 
