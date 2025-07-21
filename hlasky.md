@@ -172,4 +172,6 @@
 
 - Hindi kama sutra naked crossfit yoga
 
-- 
+- Bum bum, uz bomba letzi ukrajincu
+
+- AAAAGRH, odpadol mi penis. Teda, Anyway...
