@@ -177,3 +177,5 @@
 - AAAAGRH, odpadol mi penis. Teda, Anyway...
 
 - Aka je tvoja oblubena prichut vapeky? Zelena
+
+- O MOJ BOZE, TO JE MATKOV STOLIK
