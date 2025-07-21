@@ -179,3 +179,5 @@
 - Aka je tvoja oblubena prichut vapeky? Zelena
 
 - O MOJ BOZE, TO JE MATKOV STOLIK
+
+- Ranne vtaca, fono staca
