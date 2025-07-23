@@ -185,3 +185,5 @@
 - Ahoj, moje meno je neznasam ciganov, a neznasam ciganov
 
 - Yottabyte Cluster Bomb
+
+- Podla mna, najlepsie mena su: Jožo Búral, Dobromil Vŕtal, Fero Čúral, Peťo Rúbal
