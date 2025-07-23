@@ -181,3 +181,5 @@
 - O MOJ BOZE, TO JE MATKOV STOLIK
 
 - Ranne vtaca, fono staca
+
+- Ahoj, moje meno je neznasam ciganov, a neznasam ciganov
