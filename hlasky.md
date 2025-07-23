@@ -183,3 +183,5 @@
 - Ranne vtaca, fono staca
 
 - Ahoj, moje meno je neznasam ciganov, a neznasam ciganov
+
+- Yottabyte Cluster Bomb
