@@ -187,3 +187,7 @@
 - Yottabyte Cluster Bomb
 
 - Podla mna, najlepsie mena su: Jožo Búral, Dobromil Vŕtal, Fero Čúral, Peťo Rúbal
+
+- MOJA HLAŠKA TY UHLADZOVACIA HMOTA Z HORNBACHU
+
+- EHEHEHEHEHEHEEEE
