@@ -191,3 +191,5 @@
 - MOJA HLAŠKA TY UHLADZOVACIA HMOTA Z HORNBACHU
 
 - EHEHEHEHEHEHEEEE
+
+- Misko ty si taky plesnivy tanier
