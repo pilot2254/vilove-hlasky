@@ -193,3 +193,13 @@
 - EHEHEHEHEHEHEEEE
 
 - Misko ty si taky plesnivy tanier
+
+- TO SI FOTIL TY KED SU MI UJEBAL MOBIL
+
+- Ty morská mušla
+
+> - Daju sa tu na instagrame posielat subory?
+> - Nie
+> - Cize sem nemozem dat ako som jebol plech o stenu?
+
+- 
