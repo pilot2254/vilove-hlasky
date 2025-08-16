@@ -202,5 +202,6 @@
 > - Nie
 > - Cize sem nemozem dat ako som jebol plech o stenu?
 
-- kamarat moj zlatučky, ja ťa mam rád od prveho momentu, počuvaj, mam napad na perfektny busines.......ALE! potrebujem požičať 5tku 🥺🫶
+- kamarat moj zlatučky, ja ťa mam rád od prveho momentu, počuvaj, mam napad na perfektny busines.......ALE! potrebujem požičať 5tku 🥹🫶
+
 
