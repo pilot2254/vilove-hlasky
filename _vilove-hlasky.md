@@ -4,6 +4,8 @@
 
 - 9
 
+- 7
+
 - JA SA NEVOLAM VILO ROZBORIL TY KURVA
 
 - No pockaj. Tu ta zastavim, kameru nastavim, rodinu zastrelim a psa ti uvarim
@@ -203,5 +205,6 @@
 > - Cize sem nemozem dat ako som jebol plech o stenu?
 
 - kamarat moj zlatučky, ja ťa mam rád od prveho momentu, počuvaj, mam napad na perfektny busines.......ALE! potrebujem požičať 5tku 🥹🫶
+
 
 
