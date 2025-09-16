@@ -208,4 +208,5 @@
 
 - Idem si ostrihat nechty
 
+- no pod sem ty jeblina
 
