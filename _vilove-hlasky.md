@@ -210,3 +210,4 @@
 
 - no pod sem ty jeblina
 
+- danovy doklad, podat prihlasku
