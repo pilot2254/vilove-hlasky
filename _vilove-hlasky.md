@@ -213,5 +213,3 @@
 - danovy doklad, podat prihlasku
 
 - O MOJ BOZE!
-
-- Kamo, jedneho dna sa zobudis a zistis ze ti zmizli vsetky pohare, a ja ti ich zoberiem. Proste sa ti v noci vkradnem do domu.
