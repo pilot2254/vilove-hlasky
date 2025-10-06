@@ -213,3 +213,15 @@
 - danovy doklad, podat prihlasku
 
 - O MOJ BOZE!
+
+- vystrielat, majetky pokradnut a zdanit chudobnych treba
+
+- BOHA DRZ PICU UZ TY ZASRAN
+
+- no tak aby si sa neposral z toho
+
+- chod sa hrat s autickami na koberceku v deckom kutiku
+
+- NACO TAM STOJIS JAK SRNKA NA CESTE PRED AUTOM CO IDE 180KMH
+
+- nie ze by sme to pushli naraz... nie. MY TAM MUSIME IST POSTUPNE AKO SKOLKARI V RADE NA OBED
