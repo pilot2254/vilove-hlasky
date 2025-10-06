@@ -227,3 +227,5 @@
 - nie ze by sme to pushli naraz... nie. MY TAM MUSIME IST POSTUPNE AKO SKOLKARI V RADE NA OBED
 
 - "a muze mi nekdo vysvetlit proc mas v hlave nasrano Když hajzl je o mistnost vedle?"
+
+- "mas iq izbovej teploty"
