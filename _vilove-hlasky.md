@@ -237,3 +237,5 @@
 - Ty si ten typ cloveka co krici na bieli papier preco na nom nie je vidno napisny text bielov pastelkov
 
 - Ty si uzitocny ako koleso od bicykla ktore sa toci po z-tkovej osi
+
+- Vies ako kedysi vojaci ked raidli dedinu tak podpalili domy a znasilnili zeny? Tak ja robim presny opak ja podpalim zeny a znasilnim domy. 
