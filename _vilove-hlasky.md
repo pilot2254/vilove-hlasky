@@ -231,3 +231,5 @@
 - mas iq izbovej teploty
 
 - bude to coskoro sexualne vlado
+
+- dufam ze jedneho dna ti niekdo zasadi kalerab pod koberec
