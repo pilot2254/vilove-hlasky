@@ -229,3 +229,5 @@
 - a muze mi nekdo vysvetlit proc mas v hlave nasrano Když hajzl je o mistnost vedle?
 
 - mas iq izbovej teploty
+
+- bude to coskoro sexualne vlado
