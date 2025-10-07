@@ -235,3 +235,5 @@
 - dufam ze jedneho dna ti niekdo zasadi kalerab pod koberec
 
 - Ty si ten typ cloveka co krici na bieli papier preco na nom nie je vidno napisny text bielov pastelkov
+
+- Ty si uzitocny ako koleso od bicykla ktore sa toci po z-tkovej osi
