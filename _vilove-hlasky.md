@@ -241,3 +241,5 @@
 - Vies ako kedysi vojaci ked raidli dedinu tak podpalili domy a znasilnili zeny? Tak ja robim presny opak ja podpalim zeny a znasilnim domy. 
 
 - dufam ze kazdy den zmeskas bus o 5 sekund
+
+- kražyna s tvrdým y po ž
