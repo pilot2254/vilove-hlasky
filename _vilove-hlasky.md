@@ -243,3 +243,5 @@
 - dufam ze kazdy den zmeskas bus o 5 sekund
 
 - kražyna s tvrdým y po ž
+
+- rezen veľký ako záchodová doska
