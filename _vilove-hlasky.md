@@ -249,3 +249,5 @@
 - to v pohode, mam brata cigana
 
 - este raz ma movenete medzi tymi kanalmi, tak sa uistim ze vase domy skoncia v plamenoch
+
+- tak za toto si zasluzis karbobrusku
