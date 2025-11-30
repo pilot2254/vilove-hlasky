@@ -251,3 +251,5 @@
 - este raz ma movenete medzi tymi kanalmi, tak sa uistim ze vase domy skoncia v plamenoch
 
 - tak za toto si zasluzis karbobrusku
+
+- ahoj ja som rom a predam ti kosik!
