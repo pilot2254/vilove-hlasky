@@ -262,4 +262,5 @@
 
 - dneska som sa rozhodol ze sa budem sexualne identifikovat bud ako nedokoncena rubikova kocka, omnisexualny banan alebo moja personalna favoritka, Ruthernford Kvetinarstvo
 
-- 
+- vcera som zistil ze jeden moj spoluziak vapei Omietku greisel na yastavke Hýrošová
+
