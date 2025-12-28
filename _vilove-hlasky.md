@@ -253,3 +253,11 @@
 - tak za toto si zasluzis karbobrusku
 
 - ahoj ja som rom a predam ti kosik!
+
+- misko dneska som za zobudil a zjedol solarny panel, ako sa mam o tom citit?
+
+- ty si tak smutny ako samko ked mu padne kachlicka na parkety
+
+- ty si tak uzitocny ako keby som zmiesal stolik s hajzlovim zvonom
+
+- 
