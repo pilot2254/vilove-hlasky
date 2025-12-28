@@ -260,4 +260,6 @@
 
 - ty si tak uzitocny ako keby som zmiesal stolik s hajzlovim zvonom
 
+- dneska som sa rozhodol ze sa budem sexualne identifikovat bud ako nedokoncena rubikova kocka, omnisexualny banan alebo moja personalna favoritka, Ruthernford Kvetinarstvo
+
 - 
