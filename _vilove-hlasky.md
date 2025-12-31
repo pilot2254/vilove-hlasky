@@ -264,3 +264,8 @@
 
 - vcera som zistil ze jeden moj spoluziak vapei Omietku greisel na yastavke Hýrošová
 
+- zrolujem ta ako palacinku a hodím ta do kosa
+
+- no poď sem ty krupicova kaša
+
+- ja ti dám takú rastlinu že ti z riti začne rásť strom ty nanichodnik pachtlavy
