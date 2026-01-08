@@ -6,6 +6,8 @@
 
 - 7
 
+- 2
+
 - JA SA NEVOLAM VILO ROZBORIL TY KURVA
 
 - No pockaj. Tu ta zastavim, kameru nastavim, rodinu zastrelim a psa ti uvarim
@@ -269,3 +271,4 @@
 - no poď sem ty krupicova kaša
 
 - ja ti dám takú rastlinu že ti z riti začne rásť strom ty nanichodnik pachtlavy
+
