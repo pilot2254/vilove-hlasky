@@ -272,3 +272,4 @@
 
 - ja ti dám takú rastlinu že ti z riti začne rásť strom ty nanichodnik pachtlavy
 
+- saka maka hala paka do pice
