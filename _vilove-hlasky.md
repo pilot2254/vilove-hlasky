@@ -285,3 +285,7 @@
 - vies ako sa hovori dinousrovi ktory si lahol cez reieku aby ostatny mohli prejst? Mostosaurus
 
 - vies ako sa hovori dinosaurovi ktory pozical ostatnym peniaze? kontosaurus
+
+- Ma to 3 roky, 4 nohy a 3 oči. Čo je to? škaredé
+
+- Had isiel na bicykli a stretol zajaca. A zajac mu hovori: Had, ale ty nemas nohy. A had povie: A vlastne hej. A spadol
