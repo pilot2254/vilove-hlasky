@@ -275,3 +275,13 @@
 - saka maka hala paka do pice
 
 - mami kde mam plavky
+
+- vies ako strasi buldog? BububuBuldog
+
+- vies ako sa hovori hadovy ktory rozprava vtipy?
+
+- vies ako sa hovori chate plnej klaunov? chachachaChata
+
+- vies ako sa hovori dinousrovi ktory si lahol cez reieku aby ostatny mohli prejst? Mostosaurus
+
+- vies ako sa hovori dinosaurovi ktory pozical ostatnym peniaze? kontosaurus
