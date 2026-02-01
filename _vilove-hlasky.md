@@ -291,3 +291,5 @@
 - Had isiel na bicykli a stretol zajaca. A zajac mu hovori: Had, ale ty nemas nohy. A had povie: A vlastne hej. A spadol
 
 - i quit siege at lvl 49
+
+- misko, myslis ze sa mozem sexualne identifikovat ako pomnozne podstatne meno
