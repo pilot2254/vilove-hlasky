@@ -1,0 +1,2 @@
+S lítostí vám musím oznámit, že vám vypršel Premium účet na naší stránce - gaycorn™.<br />
+Ale nezoufejte! Jakožto jednomu z nejaktivnějších uživatelů naší sekce (GAY) vám mohu předat poukaz na tříměsíční premium. A jako bonus si můžete objednat naše homosexuální služby na 3 hodiny, a to se slevou neuvěřitelných 75%. Doufáme, že na naši stránku znovu zavítáte a stanete se opět rekordmanem v počtu shlédnutých GAY videí
