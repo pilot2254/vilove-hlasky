@@ -293,3 +293,15 @@
 - i quit siege at lvl 49
 
 - misko, myslis ze sa mozem sexualne identifikovat ako pomnozne podstatne meno
+
+- dufam ze najdes kozu co ma silny stisk a spravi ti z chuja disk
+
+- misko chod na potrat pls
+
+- dufam ze kazde rano co stanes tak sa potknes
+
+- dufam ze na teba spadne policka
+
+- @delpin tvoje priezvisko je biely ale si cernejsi nez polka populacie v zimbabwe
+
+- bro by isiel hart futball bez lopty
