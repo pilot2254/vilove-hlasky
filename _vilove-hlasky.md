@@ -305,3 +305,5 @@
 - @delpin tvoje priezvisko je biely ale si cernejsi nez polka populacie v zimbabwe
 
 - bro by isiel hart futball bez lopty
+
+- posli mu dick pic
