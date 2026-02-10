@@ -278,7 +278,7 @@
 
 - vies ako strasi buldog? BububuBuldog
 
-- vies ako sa hovori hadovy ktory rozprava vtipy?
+- vies ako sa hovori hadovy ktory rozprava vtipy? hahahad
 
 - vies ako sa hovori chate plnej klaunov? chachachaChata
 
@@ -307,3 +307,4 @@
 - bro by isiel hart futball bez lopty
 
 - posli mu dick pic
+
