@@ -308,3 +308,6 @@
 
 - posli mu dick pic
 
+> - Bartender walks into a bar
+> - bartender: hey
+> - horse: sure
