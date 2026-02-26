@@ -311,3 +311,10 @@
 > - Bartender walks into a bar
 > - bartender: hey
 > - horse: sure
+
+> Raz si slon v rieke Níl,<br />
+> 100 rokov prdel myl.<br />
+> A tebe prajem tak dlé žitie,<br />
+> ako slonovy trvalo prdele mytie.<br />
+
+- netahaj bosu nohu za tigra
