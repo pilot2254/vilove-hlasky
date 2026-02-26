@@ -318,3 +318,5 @@
 > ako slonovy trvalo prdele mytie.<br />
 
 - netahaj bosu nohu za tigra
+
+-Uz si niekomu ujebal vanu?
