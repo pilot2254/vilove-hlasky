@@ -320,3 +320,7 @@
 - netahaj bosu nohu za tigra
 
 -Uz si niekomu ujebal vanu?
+
+- podbrezny vyjeb
+
+- nieco ako bibkina baca
