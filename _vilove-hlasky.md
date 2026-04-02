@@ -324,3 +324,11 @@
 - podbrezny vyjeb
 
 - nieco ako bibkina baca
+
+- svoju spoluziacku alex som si premenoval alex ibrahim jedlicka piata
+
+- fetusinko
+
+- kokot co prezil lysterin
+
+- black mexican without tacos
