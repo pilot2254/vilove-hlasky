@@ -338,3 +338,5 @@
 - riso je obet 2 sluzobnej linky o2
 
 - svrbi ma rit
+
+- proste bratislava podunajske biskupice alebo ludia to nazyvaju aj rodne sidlo ciganov a madarov
